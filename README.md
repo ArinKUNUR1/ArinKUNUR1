@@ -1,2 +1,0 @@
-# ArinKUNUR1
-# UZAY
